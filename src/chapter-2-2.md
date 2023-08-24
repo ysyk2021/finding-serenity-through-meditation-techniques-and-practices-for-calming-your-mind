@@ -1,5 +1,3 @@
-Strategies for Choosing the Right Equipment
-========================================================================================
 
 Choosing the right equipment for your meditation space is an important step in promoting relaxation, focus, and comfort during meditation. In this chapter, we will explore strategies for choosing the right equipment for your meditation space.
 

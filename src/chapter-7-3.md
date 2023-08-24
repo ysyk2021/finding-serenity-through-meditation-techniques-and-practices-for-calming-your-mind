@@ -1,5 +1,3 @@
-The Benefits of Loving-kindness Meditation in Promoting Positive Relationships and Emotional Well-being
-==============================================================================================================================================
 
 Loving-kindness meditation, also known as metta meditation, is a practice that involves cultivating feelings of kindness, compassion, and gratitude towards oneself and others. In this chapter, we will explore the benefits of loving-kindness meditation in promoting positive relationships and emotional well-being.
 

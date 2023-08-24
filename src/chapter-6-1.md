@@ -1,5 +1,3 @@
-Techniques for Walking Meditation
-================================================================
 
 Walking meditation is a form of meditation that involves walking mindfully and intentionally, with a focus on the present moment. In this chapter, we will explore techniques for walking meditation.
 

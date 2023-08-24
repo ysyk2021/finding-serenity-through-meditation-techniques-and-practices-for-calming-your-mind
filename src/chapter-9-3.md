@@ -1,5 +1,3 @@
-The Benefits of Body Scan Meditation in Encouraging Physical Relaxation and Awareness
-======================================================================================================================
 
 Body scan meditation is a technique that involves systematically scanning the body for tension and discomfort, and then releasing that tension through relaxation techniques. In this chapter, we will explore the benefits of body scan meditation in encouraging physical relaxation and awareness.
 
@@ -32,5 +30,4 @@ Conclusion
 ----------
 
 Body scan meditation is a powerful technique for promoting physical relaxation and awareness, enhancing self-awareness, improving sleep quality, promoting mind-body connection, and reducing symptoms of anxiety and depression. By regularly practicing body scan meditation, individuals can cultivate greater relaxation, inner peace, and well-being.
-
 

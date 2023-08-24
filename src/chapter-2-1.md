@@ -1,5 +1,3 @@
-Techniques for Creating a Calm and Comfortable Environment
-=======================================================================================================
 
 Creating a calm and comfortable environment for meditation is crucial in promoting relaxation, focus, and inner peace. In this chapter, we will explore techniques for setting up your meditation space to enhance your meditation practice.
 

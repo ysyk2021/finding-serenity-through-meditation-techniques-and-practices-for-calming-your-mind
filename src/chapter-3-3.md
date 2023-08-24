@@ -1,5 +1,3 @@
-The Benefits of Conscious Breathing in Promoting Mindfulness and Self-awareness
-===============================================================================================================================
 
 Breathing techniques are a powerful tool for promoting relaxation, reducing stress and anxiety, and enhancing focus and concentration during meditation. But the benefits of conscious breathing extend beyond the physical body, promoting mindfulness and self-awareness.
 

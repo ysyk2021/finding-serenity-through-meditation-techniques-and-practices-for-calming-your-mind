@@ -1,5 +1,3 @@
-Chapter 2: Setting Up Your Meditation Space
-===========================================
 
 Setting up a meditation space is an important step in establishing a consistent meditation practice and promoting relaxation, focus, and inner peace. In this chapter, we will explore techniques for creating a calm and comfortable environment, strategies for choosing the right equipment, and the benefits of a dedicated meditation space in encouraging consistent practice.
 

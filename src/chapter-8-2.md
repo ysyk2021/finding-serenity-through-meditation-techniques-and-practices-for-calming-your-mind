@@ -1,5 +1,3 @@
-Strategies for Creating Mental Images for Relaxation and Healing
-=====================================================================================================
 
 Visualization meditation is a practice that involves using mental imagery to promote relaxation, reduce stress, and regulate emotions. In this chapter, we will explore strategies for creating mental images for relaxation and healing.
 

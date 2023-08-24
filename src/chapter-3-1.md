@@ -1,5 +1,3 @@
-Techniques for Pranayama Breathing
-==================================================================================
 
 Pranayama breathing is a specific type of breathing technique that originates from yoga practice. It involves controlling the breath and regulating the flow of energy in the body. In this chapter, we will explore techniques for pranayama breathing during meditation.
 

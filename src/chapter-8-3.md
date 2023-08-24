@@ -1,5 +1,3 @@
-The Benefits of Visualization Meditation in Reducing Pain and Regulating Emotions
-======================================================================================================================
 
 Visualization meditation is a practice that involves using mental imagery to promote relaxation, reduce stress, and regulate emotions. In this chapter, we will explore the benefits of visualization meditation in reducing pain and regulating emotions.
 

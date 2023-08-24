@@ -1,5 +1,3 @@
-Chapter 7: Loving-kindness Meditation
-=====================================
 
 Loving-kindness meditation, also known as metta meditation, is a practice that involves cultivating feelings of kindness, compassion, and gratitude towards oneself and others. In this chapter, we will explore techniques for loving-kindness meditation, strategies for cultivating compassion and gratitude, and the benefits of loving-kindness meditation in promoting positive relationships and emotional well-being.
 

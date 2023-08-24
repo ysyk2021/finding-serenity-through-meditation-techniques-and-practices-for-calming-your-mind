@@ -1,5 +1,3 @@
-Techniques for Mindfulness Meditation
-========================================================================
 
 Mindfulness meditation is a powerful technique for cultivating present-moment awareness and reducing stress and anxiety. In this chapter, we will explore techniques for effective mindfulness meditation.
 

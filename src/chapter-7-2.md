@@ -1,5 +1,3 @@
-Strategies for Cultivating Compassion and Gratitude
-==========================================================================================
 
 Loving-kindness meditation, also known as metta meditation, is a practice that involves cultivating feelings of kindness, compassion, and gratitude towards oneself and others. In this chapter, we will explore strategies for cultivating these qualities through loving-kindness meditation.
 

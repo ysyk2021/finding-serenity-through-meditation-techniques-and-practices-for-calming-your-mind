@@ -1,5 +1,3 @@
-The Benefits of Walking Meditation in Encouraging Physical and Mental Relaxation
-===============================================================================================================
 
 Walking meditation is a form of meditation that involves walking mindfully and intentionally, with a focus on the present moment. In this chapter, we will explore the benefits of walking meditation in encouraging physical and mental relaxation.
 

@@ -1,5 +1,3 @@
-Techniques for Body Scan Meditation
-====================================================================
 
 Body scan meditation is a practice that involves scanning the body for tension and discomfort, and then releasing that tension through relaxation techniques. In this chapter, we will explore techniques for body scan meditation.
 
@@ -37,5 +35,4 @@ Conclusion
 ----------
 
 Body scan meditation is a powerful technique for promoting physical relaxation and awareness. By finding a comfortable position, focusing on the breath, systematically scanning the body, using visualization techniques, using deep breathing techniques, and cultivating mindfulness, individuals can release tension and promote relaxation throughout the body. Regular practice of body scan meditation has numerous benefits for physical and mental well-being, including reducing stress and anxiety, improving sleep quality, and promoting greater self-awareness.
-
 

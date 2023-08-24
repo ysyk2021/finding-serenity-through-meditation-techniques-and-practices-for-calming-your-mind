@@ -1,5 +1,3 @@
-Strategies for Scanning the Body for Tension and Discomfort
-============================================================================================
 
 Body scan meditation is a technique that involves systematically scanning the body for tension and discomfort, and then releasing that tension through relaxation techniques. In this chapter, we will explore strategies for scanning the body during body scan meditation.
 

@@ -1,5 +1,3 @@
-Chapter 5: Mantra Meditation
-============================
 
 Mantra meditation is a technique that involves repeating a word or phrase, known as a mantra, to promote focus, calmness, and inner stillness. In this chapter, we will explore techniques and strategies for mantra meditation, as well as the benefits of this practice in encouraging tranquility and inner stillness.
 

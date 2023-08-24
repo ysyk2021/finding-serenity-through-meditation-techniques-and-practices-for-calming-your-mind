@@ -1,5 +1,3 @@
-Techniques for Visualization Meditation
-============================================================================
 
 Visualization meditation is a type of meditation that involves visualizing a particular image or scenario in the mind's eye. This technique can be used to promote relaxation, reduce stress and anxiety, and improve focus and concentration. In this chapter, we will explore techniques for visualization meditation.
 

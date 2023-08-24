@@ -1,5 +1,3 @@
-Strategies for Deepening Relaxation and Focus
-=============================================================================================
 
 Breathing techniques are a powerful tool for deepening relaxation and focus during meditation. In this chapter, we will explore strategies for using breathing techniques to enhance your meditation practice.
 

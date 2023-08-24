@@ -1,5 +1,3 @@
-The Benefits of Mantra Meditation in Encouraging Tranquility and Inner Stillness
-==============================================================================================================
 
 Mantra meditation is a practice that involves repeating a word or phrase to focus the mind and promote relaxation. In this chapter, we will explore the benefits of mantra meditation in encouraging tranquility and inner stillness.
 

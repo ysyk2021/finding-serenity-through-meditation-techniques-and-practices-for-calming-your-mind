@@ -1,5 +1,3 @@
-Defining Meditation and its Benefits for Mental and Emotional Well-being
-=================================================================================================
 
 Meditation is a practice that involves training the mind to achieve a state of calm focus and inner peace. In this chapter, we will define meditation and explore its benefits for mental and emotional well-being.
 

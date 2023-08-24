@@ -1,5 +1,3 @@
-Strategies for Combining Mindfulness and Physical Movement
-=========================================================================================
 
 Walking meditation is a form of meditation that involves walking mindfully and intentionally, with a focus on the present moment. In this chapter, we will explore strategies for combining mindfulness and physical movement during walking meditation.
 
