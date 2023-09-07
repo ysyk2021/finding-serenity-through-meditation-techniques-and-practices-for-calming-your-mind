@@ -8,3 +8,7 @@ In the following chapters, we will explore various techniques and practices for 
 Whether you're seeking spiritual growth, emotional well-being, or simply looking to reduce stress, "Finding Serenity Through Meditation" offers valuable insights and techniques for cultivating inner peace and finding serenity in daily life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
