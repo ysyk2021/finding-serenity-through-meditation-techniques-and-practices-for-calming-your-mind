@@ -1,5 +1,4 @@
-Chapter: Strategies for Choosing and Using a Personal Mantra
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for choosing and using a personal mantra in your meditation practice. A mantra is a sacred word or phrase that is repeated silently or chanted aloud during meditation. It can serve as a powerful tool to calm the mind, focus attention, and cultivate a sense of inner peace. By incorporating these strategies into your practice, you can harness the transformative power of mantras to enhance your meditation experience.
 

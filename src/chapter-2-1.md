@@ -1,5 +1,4 @@
-Chapter: Techniques for Creating a Calm and Comfortable Environment
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for creating a calm and comfortable environment to enhance your meditation practice. The environment in which you meditate plays a crucial role in promoting relaxation, focus, and a sense of inner peace. By implementing the following techniques, you can optimize your space and create a conducive atmosphere for deepening your meditation practice.
 

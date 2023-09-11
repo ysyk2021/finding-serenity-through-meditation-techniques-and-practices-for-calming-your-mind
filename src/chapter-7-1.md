@@ -1,5 +1,4 @@
-Chapter: Techniques for Loving-Kindness Meditation
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for loving-kindness meditation, a practice that cultivates compassion, kindness, and love towards oneself and others. Loving-kindness meditation, also known as metta meditation, is a powerful tool for developing empathy, forgiveness, and inner peace. By incorporating these techniques into your meditation practice, you can foster a deep sense of connection and serenity.
 

@@ -1,5 +1,4 @@
-Chapter: Strategies for Combining Mindfulness and Physical Movement
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for combining mindfulness and physical movement to enhance serenity, calmness, and inner peace. By integrating mindfulness practices with physical activities, individuals can cultivate a deeper mind-body connection and experience the benefits of both meditation and movement.
 

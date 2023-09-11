@@ -1,5 +1,4 @@
-Chapter: Techniques for Walking Meditation
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for practicing walking meditation. Walking meditation is a powerful mindfulness practice that combines the physical act of walking with the cultivation of present-moment awareness. By focusing on each step and the sensations associated with it, we can calm the mind, deepen our connection with the body, and find inner peace. Here, we will learn step-by-step instructions for different approaches to walking meditation.
 

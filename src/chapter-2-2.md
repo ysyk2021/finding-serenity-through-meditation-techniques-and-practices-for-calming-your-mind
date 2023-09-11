@@ -1,5 +1,4 @@
-Chapter: Strategies for Choosing the Right Equipment
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for choosing the right equipment to enhance your meditation practice. While meditation is a simple and accessible practice, having the appropriate tools and equipment can greatly support your comfort, focus, and overall experience. By understanding your needs and preferences, you can select the right equipment that aligns with your unique meditation journey.
 

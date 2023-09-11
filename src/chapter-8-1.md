@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Visualization Meditation
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Visualization meditation is a powerful technique for calming the mind, reducing stress, and promoting inner peace. By engaging the imagination and creating vivid mental images, we can cultivate a sense of relaxation and well-being. In this chapter, we will explore several techniques for visualization meditation that you can use to deepen your practice and achieve greater serenity.
 

@@ -1,5 +1,4 @@
-Strategies for Scanning the Body for Tension and Discomfort
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Body scanning is a fundamental technique in mindfulness meditation that involves systematically bringing attention to different parts of the body, noticing any sensations, and cultivating non-judgmental awareness. In this chapter, we will explore different strategies for scanning the body for tension and discomfort. By developing this skill, you can release physical and mental tension, foster relaxation, and promote inner peace.
 

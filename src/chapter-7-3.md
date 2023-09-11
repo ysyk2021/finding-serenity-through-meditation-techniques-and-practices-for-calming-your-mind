@@ -1,5 +1,4 @@
-Chapter: The Benefits of Loving-Kindness Meditation in Promoting Positive Relationships and Emotional Well-Being
-================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful benefits of loving-kindness meditation in promoting positive relationships and emotional well-being. Loving-kindness meditation is a practice that cultivates feelings of love, compassion, and kindness towards oneself and others. Through the intentional cultivation of these qualities, loving-kindness meditation brings about profound transformation, enhancing our relationships, emotional well-being, and overall sense of inner peace.
 

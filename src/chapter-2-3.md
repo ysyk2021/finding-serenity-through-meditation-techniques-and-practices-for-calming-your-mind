@@ -1,5 +1,4 @@
-Chapter: The Benefits of a Dedicated Meditation Space in Encouraging Consistent Practice
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Having a dedicated meditation space can greatly enhance your consistency and commitment to your practice. In this chapter, we will explore the benefits of having a special place solely for meditation, and how it can help you deepen your practice and cultivate a greater sense of inner peace.
 

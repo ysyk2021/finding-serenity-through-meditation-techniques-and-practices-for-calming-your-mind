@@ -1,5 +1,4 @@
-Techniques for Body Scan Meditation
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Body scan meditation is a powerful practice that involves bringing mindful awareness to different parts of the body. This chapter explores various techniques to help you cultivate body scan meditation and experience its benefits. By systematically scanning your body, you can develop a deeper connection with yourself, release tension, and promote relaxation. Let's explore some techniques for practicing body scan meditation.
 

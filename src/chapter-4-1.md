@@ -1,5 +1,4 @@
-Chapter: Techniques for Mindfulness Meditation
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for mindfulness meditation. Mindfulness meditation is a powerful practice that cultivates present-moment awareness and fosters inner peace. By developing the skills to observe thoughts, emotions, and sensations without judgment, individuals can experience a profound sense of serenity and calmness.
 

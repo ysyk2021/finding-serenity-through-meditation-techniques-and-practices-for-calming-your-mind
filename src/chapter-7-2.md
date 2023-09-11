@@ -1,5 +1,4 @@
-Chapter: Strategies for Cultivating Compassion and Gratitude
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for cultivating compassion and gratitude in your meditation practice. Compassion and gratitude are powerful qualities that can bring profound transformation to our lives, enhancing our relationships, well-being, and overall sense of fulfillment. By incorporating these strategies into your practice, you can develop a heart-centered approach to life, fostering compassion for others and cultivating a deep sense of gratitude.
 

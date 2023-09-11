@@ -1,5 +1,4 @@
-Strategies for Creating Mental Images for Relaxation and Healing
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies for creating mental images as a means of promoting relaxation and facilitating the healing process. The use of mental imagery can be a powerful tool in calming the mind, reducing stress, and enhancing overall well-being. By incorporating these techniques into your meditation practice, you can harness the power of visualization to find serenity and inner peace.
 

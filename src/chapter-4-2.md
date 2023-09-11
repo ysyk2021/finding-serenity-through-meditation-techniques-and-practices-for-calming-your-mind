@@ -1,5 +1,4 @@
-Chapter: Strategies for Staying Present and Focused
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for staying present and focused during meditation. Cultivating present moment awareness is a key aspect of mindfulness practice, allowing us to calm the mind, find inner peace, and experience the full benefits of meditation. Here, we will discuss various techniques and practices that can help you enhance your ability to stay present and focused.
 

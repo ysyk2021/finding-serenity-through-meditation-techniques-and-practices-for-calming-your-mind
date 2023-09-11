@@ -1,5 +1,4 @@
-Techniques for Mantra Meditation
-================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mantra meditation is a type of meditation that involves the repetition of a word or phrase, known as a mantra. The mantra serves as a point of focus for the mind, helping to quiet mental chatter and deepen concentration. This technique is often used in both traditional Eastern meditation practices and modern Western mindfulness practices. Here are some techniques for practicing mantra meditation:
 
